@@ -4,7 +4,7 @@
 - 
 - 🌱 I’m currently learning ... SQL & Linux
 - 
-- 💞️ I’m looking to collaborate on ... Anything that involves learning and developing skills 
+- 💞️ I’m looking to collaborate on ... Anything that involves learning and developing my contributive skills 
 - 
 - 📫 How to reach me ... Email: marioraya294@gmail.com |
 
